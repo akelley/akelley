@@ -1,1 +1,1 @@
-Senior Software Engineer at Trillion Technology Solutions, Inc
+Software Architect at Trillion Technology Solutions, Inc
